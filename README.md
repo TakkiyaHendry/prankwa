@@ -1,0 +1,2 @@
+# prankwa
+cara memasukan no 082292123164 62882292123164
